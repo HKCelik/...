@@ -1,1 +1,0 @@
-# Hasan-Kemal-elik-213-9-B
